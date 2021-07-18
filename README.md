@@ -1,4 +1,4 @@
-### Hi there, I'm YeeHsun - aka ChefDoggy 👋
+### Hi there, I'm YeeHsun 
 
 
 ## I'm a Student, Engineer and Programmer!!
