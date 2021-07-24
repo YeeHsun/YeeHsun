@@ -13,7 +13,6 @@
 
 [instagram](https://www.instagram.com/?hl=zh-tw)
 
-<br />
 
 ### Languages and Tools:
 * c/c++
