@@ -8,9 +8,9 @@
 
 
 ### Connect with me:
-[youtube](https://www.youtube.com/channel/UCwMgS1y_0bqoNv3FONzpYDg)
+[email](smilel6g84@media.ee.ntu.edu.tw)
 
-[instagram](https://www.instagram.com/?hl=zh-tw)
+
 
 
 ### Languages and Tools:
