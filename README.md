@@ -3,8 +3,7 @@
 
 ## I'm a Student, Engineer and Programmer!!
 
-- 🌱 I’m currently learning everything 🤣
-- 🥅 2021 Goals: Graduate from NTU
+- 🌱 I’m currently learning everything about computer vision🤣
 - ⚡ Fun fact: I love to play DOTA and FPS games
 
 
