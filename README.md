@@ -8,7 +8,7 @@
 
 
 ### Connect with me:
-[email](smilel6g84@media.ee.ntu.edu.tw)
+[email] smilel6g84@media.ee.ntu.edu.tw
 
 
 
